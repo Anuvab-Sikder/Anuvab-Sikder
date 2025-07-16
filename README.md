@@ -1,6 +1,7 @@
+![Visualizer ](https://media.licdn.com/dms/image/v2/C5616AQGDg1fXeScbtw/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1624945757970?e=1758153600&v=beta&t=vq5h0KVWJVVGD5QdTZ1wn4JrXxa-CJ4y0Lu31_aBQD4)
 ### Hi there 👋, my name is Anuvab Sikder
 #### Visualizer 
-![Visualizer ](https://media.licdn.com/dms/image/v2/C5616AQGDg1fXeScbtw/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1624945757970?e=1758153600&v=beta&t=vq5h0KVWJVVGD5QdTZ1wn4JrXxa-CJ4y0Lu31_aBQD4)
+
 
 I am a passionate graphic designer with two years of full-time and two years of freelance experience, specializing in data-driven information design, info-graphics, branding, UI/UX, multimedia, sustainability reports, 3D animation, and icon design for global marketplaces. Design has always been more than a profession—it's a lifelong passion that drives my creativity and curiosity.
 
