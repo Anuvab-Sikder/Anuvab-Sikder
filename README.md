@@ -10,7 +10,7 @@ With a background in Management Information Systems, I bring a strategic and ana
 Skills: UI/UX / Web Design (WordPress & Figma) / Icon & Illustration Design /  Motion Graphics / 3D Animation (Blender)  / Data Analysis & Visualization
 
 - 🔭 I’m currently working on thenounproject.com 
-- 🌱 I’m currently learning Leather Goods Design 
+- 🌱 I’m currently learning Framer
 
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/Anuvab-Sikder)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg' alt='linkedin' height='40'>](https://www.linkedin.com/in/https://www.linkedin.com/in/anuvab-sikder//)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg' alt='facebook' height='40'>](https://www.facebook.com/https://www.facebook.com/anuvab.sikder.2025/)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/behance.svg' alt='behance' height='40'>](https://www.behance.net/anuvabsikder)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/freelancer.svg' alt='freelancer' height='40'>](https://www.freelancer.com/u/anuvabsikder)  
